@@ -1,0 +1,8 @@
+Parte 1: Reflexión escrita
+Hubo un momento en mi vida, cuando terminé el colegio a los 17 años, en el que me sentí completamente perdido. Veía a mis amigos avanzar, ingresar a universidades o ya tener un rumbo claro, mientras yo aún no sabía ni qué quería estudiar. Sentía un vacío enorme, como si el tiempo pasara y yo estuviera estancado. Enfrenté esa etapa buscando espacios donde pudiera reconectarme conmigo mismo: empecé a leer, salía a caminar por el malecón en Miraflores, y me refugié mucho en la música. Poco a poco fui entendiendo que no hay un solo camino correcto, y que cada uno tiene su propio ritmo.
+
+Más allá del éxito profesional, lo que me da propósito es mi familia, mis amigos, y el deseo de construir algo que ayude a otros. Siempre me ha motivado la idea de que mi tiempo aquí sirva para mejorar la vida de alguien, aunque sea con una sonrisa o una palabra a tiempo. Ver feliz a la gente que quiero es lo que realmente me llena.
+
+He aprendido que las emociones y la espiritualidad son como el timón de mi vida. Cuando estoy emocionalmente bien, me siento con energía para soñar, crear y avanzar. Y la espiritualidad —aunque no me considere alguien muy religioso— me conecta con algo más grande. A veces, una tarde tranquila viendo el atardecer en la Costa Verde me hace sentir en paz, como si todo tuviera sentido por un momento.
+
+Si tuviera solo un año para vivir con plenitud, dedicaría mi tiempo a las personas que amo. Viajaría por el Perú, visitaría lugares que siempre quise conocer como Cusco o la Amazonía.
